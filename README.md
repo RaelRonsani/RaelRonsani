@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RaelRonsani
-- 📫 How to reach me: rael.ronsani@outlook.com.br
+Information's Sistems student.
+- 📫 How to reach me: rael.ronsani@outlook.com
 
 
